@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-SORA940630MTSSYR02
+SORA940630MTSSYR02
